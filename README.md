@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @47kavin
-- 👀 I’m interested in coding and gaming
+- 👀 I’m interested in coding,,gaming,, projects
 - 🌱 I’m currently learning in college
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me through dm
